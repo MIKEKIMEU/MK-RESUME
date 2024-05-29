@@ -1,1 +1,1 @@
-Link to my resume: https://mikekimeu.github.io/MK-RESUME/
+Link to my resume: https://LazarusJunior.github.io/LKJ-RESUME/
